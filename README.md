@@ -1,2 +1,2 @@
-https:lamra.in
+https://lamra.in
 
